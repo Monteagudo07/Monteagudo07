@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Engenharia de Software
 - 🌱 I’m currently learning ... Ingles
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me ... Gmail
 - 😄 Pronouns🥇
 - ⚡ Fun fact: Sou muito sorridente
 
